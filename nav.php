@@ -1,0 +1,1 @@
+Es bromuro, no homo
